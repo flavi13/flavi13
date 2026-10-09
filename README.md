@@ -1,4 +1,4 @@
-###  Hello! I'm flavi13
+###  Hello! I'm flavii
 
 🎓 3rd-year Computer Engineering student, passionate about technology and continuous learning.
 
